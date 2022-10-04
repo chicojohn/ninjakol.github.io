@@ -1,0 +1,1 @@
+# ninjakol.github.io
